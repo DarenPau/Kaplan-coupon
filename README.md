@@ -1,6 +1,6 @@
 # Kaplan Coupon March 2025 | Get 60% Off Promo Code & Discount
 
-Are you looking for a **[Kaplan coupon](https://www.kaptest.com/)** to save big on test prep or professional courses?
+Are you looking for a **[Kaplan coupon]**(https://www.kaptest.com/) to save big on test prep or professional courses?
 
 You are in luck! Kaplan has been a leader in education for over **80 years** and has helped millions of ace exams like the MCAT, GMAT, LSAT, and more.
 
